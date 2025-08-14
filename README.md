@@ -1,6 +1,6 @@
 # Hi there, I'm Serhii Seletskyi 👋
 
-** Agentic AI Innovation Leader | Principal AI Architect**  
+**Agentic AI Innovation Leader | Principal AI Architect**  
 
 📍 **Lviv, Ukraine**  
 🔗 [LinkedIn](https://www.linkedin.com/in/sergeyseletsky) | [GitHub](https://github.com/SergiySeletsky)  
